@@ -6,6 +6,6 @@ Estou usando na [Alura](https://www.alura.com.br)
 
 **ME SIGA NO INSTAGRAM  gabi_x.v**
 
-!.[.].(https://media.tenor.com/17LOEEY9bUAAAAM/dog-dancing-brazil-dog.gif)
 
+![descrição do GIF](https://media.tenor.com/3V60jcQwEzsAAAAC/cony-brown-flying-kiss.gif)
 
